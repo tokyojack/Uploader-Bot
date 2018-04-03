@@ -22,4 +22,4 @@
 
 ##
 
-Now you've just install the program! A ton of people are gonna be jealous of your super fancy graphs now!  ```◕3◕```!
+Now you've just install the program! You have just unlocked the power's of the amazing bot  ```ƪ(˘⌣˘)ʃ```!
